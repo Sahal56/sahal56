@@ -26,7 +26,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning AWS
 - 💬 Ask me about DSA | Machine Learning | Linux
 - 📫 Reach me at **sahal5601@gmail.com**
-- 😄 Pronouns: just **PATHAN**
+- 😄 People call me: just **PATHAN**
 - ⚡ Fun fact: **I am lazyy !!!**
 
 
